@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Omid8636
+- 👀 I’m interested in programming and creating robot's 
+- 🌱 I’m currently a student
+- 💞️ I’m looking to collaborate with nobody
+- 📫 How to reach me >> Mail: info@omidjahangir.com - omid_jahangir@yahoo.com    
+- 📫 How to reach me >> Discord: omid#5555
